@@ -141,7 +141,7 @@ Le Président représente l’Association dans tous les actes de la vie civile. 
 
 #### Article 13. Membres jardiniers
 
-Les **Membres jardiniers** sont des membres parmi les anciens élus des Comités de pilotage (crèche Capucine ou Jardin des parents) admis à siéger au sein du Conseil d'administration dans les conditions qui sont fixées au Règlement intérieur de l’Association.
+Les **Membres jardiniers** sont des membres parmi les anciens élus des Comités de pilotage (crèche Capucine ou Jardin des parents) ou parmi les anciens élus du Bureau admis à siéger au sein du Conseil d'administration dans les conditions qui sont fixées au Règlement intérieur de l’Association.
 
 #### Article 14. Fonctionnement du Conseil d'administration
 
